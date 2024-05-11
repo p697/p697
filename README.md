@@ -7,5 +7,3 @@
 - 🍫  &nbsp; How to reach me: reach
 
 </br>
-
-<img align="right" src="https://visitor-badge.glitch.me/badge?page_id=p697.p697" />
